@@ -12,18 +12,23 @@ KOMAEDA FICTIONKIN , HE / THEY
 
 <div align="center">
 17
+</div>
 
 <div align="center">
 Ultimate Lucky Student
+</div>
 
 <div align="center">
 IWEC , W2I , CD (crowd discomfort)
+</div>
 
 <div align="center">
 C+H freely!!
+</div>
 
 <div align="center">
 Taken by my lovely wife!
+</div>
 
 <p align="center">
 <img src="https://github.com/user-attachments/assets/8b07785d-61e0-4f1f-b7fc-b33bf15c69f3" alt="Try to be gentle when you are ripping me apart." width="750" />
@@ -32,6 +37,9 @@ Taken by my lovely wife!
 <p align="center">
 <img src="https://github.com/user-attachments/assets/e332ab42-5c42-43c6-bf1b-e168ef1d543b" alt="no ok?" width="450" />
 </p>
+
+> [!CAUTION]
+> I have really, really, REALLY bad mental health. Please int with extreme caution. int with care if you're a new person interacting with me.
 
 <p align="center">
  <img src="https://i.pinimg.com/1200x/86/92/4f/86924f4c013de75071156b9372afd50f.jpg" alt="Alt Text" width="250" />
